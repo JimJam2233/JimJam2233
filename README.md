@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @JimJam2233
+- 👀 I’m interested in Games(FPS),Coding.
+- 🌱 I’m currently learning HTM
